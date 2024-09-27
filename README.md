@@ -1,1 +1,2 @@
 Nicholas Murray
+murrnich@oregonstate.edu
